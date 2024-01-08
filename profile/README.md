@@ -1,2 +1,2 @@
 ...
-behind the [worst naraka related site](https://nararaka.com)
+behind an [unfinished naraka related site](https://nararaka.com)
